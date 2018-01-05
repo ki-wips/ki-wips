@@ -1,1 +1,1 @@
-# ki-wips
+# ki-WIPS
